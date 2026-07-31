@@ -2,7 +2,7 @@
 # Aline Monteiro Campelo
 
 📧 **[aline.campelo.monteiro@gmail.com](mailto:aline.campelo.monteiro@gmail.com)**
-📱 +55 19 99493-5473
+📱 +55 (19) 99493-5473
 
 ## 🎯 Objetivo
 Em busca da primeira oportunidade profissional para aplicar meus conhecimentos, desenvolver novas competências e contribuir com dedicação, responsabilidade e comprometimento para os resultados da empresa.
